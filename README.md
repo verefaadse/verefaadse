@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: ...775
-- ⚡ Fun fact: ...985
+- ⚡ Fun fact: ...985vnm
 
 <!---
 verefaadse/verefaadse is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
