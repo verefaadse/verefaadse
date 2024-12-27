@@ -6,7 +6,6 @@
 - 😄 Pronouns: ...77554ad5696
 - ⚡ Fun fact: ...985vnmwerwer
 fhwer96
-<!---65wercxv
-verefaadse/verefaadse is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<!---65wercxvsdf GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
