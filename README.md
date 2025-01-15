@@ -1,6 +1,6 @@
 adasdt54- 👋 Hi, I’m @verefaadse
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...33fg54
+- 🌱 I’m currently learning ...33fg54477447
 - 💞️ I’m looking to collaborate on ...wer
 - 📫 How to reach me ...123
 - 😄 Pronouns: ...77554ad5696
