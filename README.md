@@ -1,7 +1,7 @@
 xxxsdfsdasd025adasdt54- 👋 Hi, I’m @verefaadse
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...33fg54477447
-- 💞️ I’m looking to collaborate on ...wer63252hkjmjmgfbgfbzcx99879wqwqw0203wqeqw
+- 💞️ I’m looking to collaborate on ...wer63252hkjmjmgfbgfbzcx99879wqwqw0203wqeqwvfddfvvfd
 - 📫 How to reach me ...12399969vbnhgnhngrhtsdfasdlk.lkdsfthfg
 - 😄 Pronouns: ...77554ad5696dsfsddsf7887hgcsas52596+bgfgffggfdvdvd
 - ⚡ Fun fact: ...985vnmwerwefhjg258766+6sdf,kjgre99696fdbfdde
