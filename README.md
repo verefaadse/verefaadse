@@ -1,5 +1,5 @@
 hhrteherrhehrsdfncb xxxsdfsdasd025adasdt54- 👋 Hi, I’m @verefaadse
-- 👀 I’m interested in ...eded
+- 👀 I’m interested in ...edederdfe
 - 🌱 I’m currently learning ...33fg54477447
 - 💞️ I’m looking to collaborate on ...wer63252hkjmjmgfbgfbzcx99879wqwqw0203wqeqwvfddfvvfdxvchggge
 - 📫 How to reach me ...12399969vbnhgnhngrhtsdfasdlk.lkdsfthfghgnghnghawsss
