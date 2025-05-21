@@ -1,8 +1,7 @@
 hhrteherrhehrsdfncb xxxsdfsdasd025adasdt54- 👋 Hi, I’m @verefaadse
 - 👀 I’m interested in ...edederdfe
-- 🌱 I’m currently learning ...33fg54477447fgnf
-- 💞️ I’m looking to collaborate on ...qewwqeewsx
-- 📫 How to reach me ...12399969vbnhgnhngrhtsdfasdlk.lkdsfthfghgnghnghawssshnfgngr
+- 🌱 I’m currently learning ...33fg54477447fgnfxvcxcv
+- 📫 How to reach me ...12399969vbnhgnhngrhtsdfasdlk.lkdsfthfghgnghnghawssshnfgngrc
 - 😄 Pronouns: ...77554ad5696dsfsddsf7887hgcsas52596+bgfgffggfdvdvd9566mjhmhmhjm
 - ⚡ Fun fact: ...985vnmwerwefhjg258766+6sdf,kjgre99696fdbfddefsddsfcweddffff
 <!---65wercxvsdf GitHub profile.grbgfbfwtwfhjfhjjhfgjhjguy
