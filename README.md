@@ -1,6 +1,6 @@
 ddgfhhrteherrhehrsdfncb xxxsdfsdasd025adasdt54- 👋 Hi, I’m @verefaadse
-- 👀 I’m interested in ...edederdfe
-- 🌱 I’m currently learning ...33fg54477447fgnfxvcxcv
+- 👀 I’m interested in ...edederdfekhjhjkkhj
+- 🌱 I’m currently learning ...33fg54477447fgnfxvcxcvhjk
 - 📫 How to reach me ...12399969vbnhgnhngrhtsdfasdlk.lkdsfthfghgnghnghawssshnfgngrc59212fdgdfg
 - 😄 Pronouns: ...77554ad5696dsfsddsf7887hgcsas52596+bgfgffggfdvdvd9566mjhmhmhjmgdfdgfdfrhtrt
 - ⚡ Fun fact: ...985vnmwerwefhjg258766+6sdf,kjgre99696fdbfddefsddsfcweddffffcvzcx
